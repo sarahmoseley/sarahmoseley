@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sarahmoseley
+- 👀 I’m interested in non-profit initiatives and marketing
+- 🌱 I’m currently learning skills to maintain a positive mindset
+- 💞️ I’m looking to collaborate on projects that will teach me new skills
+- 📫 How to reach me: smoseley102@gmail.com or linkedin.com/smoseley102
+- 😄 Pronouns: she/her/hers
+- ⚡ Fun fact: I have a dog and cat
